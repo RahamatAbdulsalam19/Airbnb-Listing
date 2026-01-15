@@ -108,3 +108,5 @@ These insights can help hosts optimize pricing and improve listing performance.
 Feel free to reach out if you have questions or want to collaborate:
 
 **GitHub:** [https://github.com/RahamatAbdulsalam19](https://github.com/RahamatAbdulsalam19)
+**Linkedln** http://www.linkedin.com/in/rahamat-abdulsalam-32a34a312
+**Email** arinolaabdulsalam21@gmail.comm
